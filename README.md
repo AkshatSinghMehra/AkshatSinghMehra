@@ -2,7 +2,7 @@
 - 👀 I’m interested in development and machine learning.
 - 🌱 I’m currently learning about AI and development.
 - 💞️ I’m looking to collaborate on AI and development (web) projects..
-- 📫 How to reach me ...  emaii-  mehraofficial20@gmail.com
+- 📫 How to reach me ...  email-  mehraofficial20@gmail.com
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...
 
